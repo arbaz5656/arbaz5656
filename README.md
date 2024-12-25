@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **shaikharbaz18691@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/arbaz5656/overlay/1635543882966/single-media-viewer/?profileId=ACoAAEcNfhYBqN8F_FmU7nFR3xF3TktcOpNY4MM](https://www.linkedin.com/in/arbaz5656/overlay/1635543882966/single-media-viewer/?profileId=ACoAAEcNfhYBqN8F_FmU7nFR3xF3TktcOpNY4MM)
+- 📄 Know about my experiences [https://in.linkedin.com/in/arbaz5656](https://in.linkedin.com/in/arbaz5656)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
